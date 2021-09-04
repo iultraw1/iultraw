@@ -1,5 +1,5 @@
 ### Hi there 👋
-Hello, my name is Tayfun.
+Hello, my name is iUltraw.
 
 I'm a freelance web developer / half-time musician.
 
